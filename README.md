@@ -3,5 +3,7 @@
 
 [JHU公开52篇录取文书范文](https://mp.weixin.qq.com/s/oDhrdS263gUApM9teIpprQ)  
 
+[美国丨美国大学申请，EA/ED/REA如何选择？](https://zhuanlan.zhihu.com/p/555556983?utm_id=0)  
+
 
 
