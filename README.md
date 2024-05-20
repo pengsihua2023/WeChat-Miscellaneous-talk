@@ -38,6 +38,8 @@
 授权书  
 可能还会要求提供除“必需”文件以外的其他文件。  
 
+申请网站：[Link](https://www.evisa.mofa.go.jp/personal/login)  
+
    
   
   
