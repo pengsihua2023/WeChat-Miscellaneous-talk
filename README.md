@@ -1,4 +1,5 @@
 # 昆仑万维
+[AI排名](https://dnipkggqxh.feishu.cn/wiki/YTIUwM6Vmij4IQkSm9PctPWunIb)  
 # 歌曲
 [主的恩典](https://music.tiangong.cn/share-land?shareKey=3hm3mxg2uDEzdv5SPPcHEe&offsite=1)  
 [天父的爱](https://music.tiangong.cn/share-land?shareKey=FcuD38qiRAm5BbAjtLdBy&offsite=1)  
