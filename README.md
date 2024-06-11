@@ -1,3 +1,7 @@
+# 昆仑万维
+# 歌曲
+[主的恩典](https://music.tiangong.cn/share-land?shareKey=3hm3mxg2uDEzdv5SPPcHEe&offsite=1)  
+[天父的爱](https://music.tiangong.cn/share-land?shareKey=FcuD38qiRAm5BbAjtLdBy&offsite=1)  
 # 微信：泽越申请高校  
 [1. JHU公开52篇录取文书范文](https://mp.weixin.qq.com/s/oDhrdS263gUApM9teIpprQ)  
 
